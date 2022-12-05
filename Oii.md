@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @pleavin ✨
+- 👀 I’m interested in just learning and knowledge about programming and software development. ✨
+- 🌱 I’m currently studying systems analysis and development at IFPR (🇧🇷). ✨
+- 💞️ I’m looking to collaborate in everything i can. ✨
+- 
+- 📫 How to reach me :
+- 📧 email: alysonbclash@gmail.com
+- 🐦 twitter: @xlysnn
+- 🤖 discord: 
